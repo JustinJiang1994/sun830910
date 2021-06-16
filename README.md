@@ -1,4 +1,4 @@
-- ### Hi there 👋  , my name is Justin Jiang  , 蒋佳惟
+- ### Hi there 👋  , my name is Justin Jiang  
   ![](https://i.imgur.com/AfodnKD.png)
 
   From Taiwan.  
